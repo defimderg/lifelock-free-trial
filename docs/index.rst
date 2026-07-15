@@ -3,11 +3,15 @@ How to Get LifeLock Free Trial?
 
 LifeLock is an identity protection service designed to help users monitor their personal information, receive alerts about possible identity threats, and stay informed about suspicious activities.
 
+
+|
+
 .. image:: https://img.shields.io/badge/Get%20Free%20Trial-blue?style=for-the-badge&logo=sign-in-alt&logoColor=white
    :width: 200px
    :align: center
    :target: https://getchatsupport.net/
    :alt: Get Help Button
+|
 
 
 With the increasing number of online scams, data breaches, and identity theft attempts, many people look for reliable ways to protect their digital identity.
@@ -325,6 +329,94 @@ What features should I test during the trial?
 ---------------------------------------------
 
 Users should explore identity monitoring, alerts, account settings, and other available protection tools.
+
+
+`How to login Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-login-lifelock-account>`_
+
+`How to sign in to your Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-sign-in-to-your-lifelock-account>`_
+
+`How to access your Lifelock account login <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-access-your-lifelock-account-login>`_
+
+`How to access and manage your Lifelock My Account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-access-and-manage-your-lifelock-my-account>`_
+
+`How to fix Lifelock login not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-lifelock-login-not-working>`_
+
+`How to fix a Lifelock login error <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-a-lifelock-login-error>`_
+
+`How to fix Lifelock sign in not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-lifelock-sign-in-not-working>`_
+
+`How to recover a forgotten Lifelock password <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-recover-a-forgotten-lifelock-password>`_
+
+`How to reset your Lifelock password <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-reset-your-lifelock-password>`_
+
+`How to unlock a locked Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-unlock-a-locked-lifelock-account>`_
+
+`How to restore a suspended Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-restore-a-suspended-lifelock-account>`_
+
+`How to fix a Lifelock account that is not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-a-lifelock-account-that-is-not-working>`_
+
+`How to recover a hacked Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-recover-a-hacked-lifelock-account>`_
+
+`How to fix Lifelock two factor authentication not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-lifelock-two-factor-authentication-not-working>`_
+
+`How to get back into a locked Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-get-back-into-a-locked-lifelock-account>`_
+
+`How to create a Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-create-a-lifelock-account>`_
+
+`How to change your Lifelock account email address <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-change-your-lifelock-account-email-address>`_
+
+`How to download Lifelock <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-download-lifelock>`_
+
+`How to download the Lifelock app <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-download-the-lifelock-app>`_
+
+`How to download Lifelock for iPhone <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-download-lifelock-for-iphone>`_
+
+`How to download Lifelock for Android <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-download-lifelock-for-android>`_
+
+`How to download Lifelock for Windows <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-download-lifelock-for-windows>`_
+
+`How to download Lifelock for Mac <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-download-lifelock-for-mac>`_
+
+`How to fix Lifelock install not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-lifelock-install-not-working>`_
+
+`How to fix the Lifelock app not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-the-lifelock-app-not-working>`_
+
+`How to reinstall the Lifelock app <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-reinstall-the-lifelock-app>`_
+
+`How to find and use your Lifelock activation key <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-find-and-use-your-lifelock-activation-key>`_
+
+`How to use a Lifelock activation code <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-use-a-lifelock-activation-code>`_
+
+`How to activate your Lifelock account <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-activate-your-lifelock-account>`_
+
+`How to fix Lifelock not working <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-fix-lifelock-not-working>`_
+
+`How to check if Lifelock is down <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-check-if-lifelock-is-down>`_
+
+`How to contact Lifelock customer service <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-contact-lifelock-customer-service>`_
+
+`How to contact Lifelock customer support <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-contact-lifelock-customer-support>`_
+
+`How to contact Lifelock support <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-contact-lifelock-support>`_
+
+`How to reach Lifelock customer service 24/7 <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-reach-lifelock-customer-service-24-7>`_
+
+`How to reach Lifelock tech support <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-reach-lifelock-tech-support>`_
+
+`How to connect with a Lifelock live agent <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-connect-with-a-lifelock-live-agent>`_
+
+`How to use the Lifelock help center <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-use-the-lifelock-help-center>`_
+
+`How to get help from Lifelock <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-get-help-from-lifelock>`_
+
+`How to contact Lifelock email support <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-contact-lifelock-email-support>`_
+
+`How to reach Lifelock 24/7 support <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-reach-lifelock-24-7-support>`_
+
+`How to use Lifelock live chat for instant help <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-use-lifelock-live-chat-for-instant-help>`_
+
+`How to contact Lifelock support through the Contact Us page <https://lifelock.zohodesk.com/portal/en/kb/articles/how-to-contact-lifelock-support-through-the-contact-us-page>`_
+
 
 Conclusion
 ==========
